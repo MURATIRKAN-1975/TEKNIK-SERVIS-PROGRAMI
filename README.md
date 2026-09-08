@@ -1,2 +1,3 @@
-# TEKNIK-SERVIS-PROGRAMI
-TEKNIK SERVIS PROGRAMI- v.1.69
+FİAT BİLGİSİ VE TEKNİK BİLGİ İÇİN : muratirkan@gmail.com
+muratir1975@windowslive.com
+-------------------------------------------------------
